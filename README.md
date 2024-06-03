@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **marmitapaul@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Lbs8GQd_ILCebnWfJZwevJZdxJbpPj9t/view?usp=sharing](https://drive.google.com/file/d/1Lbs8GQd_ILCebnWfJZwevJZdxJbpPj9t/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1C9K0i2T-9cWiWhtWFMXNoNBhqcg21ndT/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
